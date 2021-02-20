@@ -8,6 +8,8 @@ If GOooGLE = InterNet & GO60GLE = OuterNet...Would this be true Power over Ether
 - 💞️ I’m looking to collaborate on an array of projects which fulfil my/our core Vision and Values. Promoting human rights, equal opportunities, ADHD and mental wellbeing awareness with creative content/opportunities will be at the centre of the journey. 
 - 📫 How to reach me M: 07917 037277 | E: Craig@BaseATM.com | W: www.BaseATM.com
 
+Thank you
+
 
 
 <!---
